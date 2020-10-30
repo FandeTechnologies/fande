@@ -1,2 +1,2 @@
 # Fande Company
-social Network 
+We Make It Happen!
